@@ -1,7 +1,3 @@
-# Matheus Pedroso
-system developer 2/3
-16 years.
-
-unexpected
-Literally me.
-
+# Perfil btw
+# Matheus Pedroso; 16 years; System Developer 2/3
+Unexpected.
